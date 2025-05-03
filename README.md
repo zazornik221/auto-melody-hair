@@ -1,4 +1,4 @@
- Melody hair Mod, auto melody hair, hypixel skyblock how to complete melody hair, melody harp
+ Melody hair Mod, auto melody hair, hypixel skyblock how to complete melody hair, melody harp, Melody hypixel skyblock Macro
 
 ## [Download](https://github.com/zazornik221/auto-melody-hair/releases/download/AutoHarp/AutoHarp.jar)
 
